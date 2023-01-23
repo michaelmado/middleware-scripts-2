@@ -1,0 +1,1 @@
+be motivate will be part of your success in this class!
